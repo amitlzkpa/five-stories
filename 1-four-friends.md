@@ -27,3 +27,13 @@ The hunter could not believe his luck. "I lost one deer, but looks like I have f
 The tortoise smiled. His friends had come to rescue him.
 
 The hunter left the tortoise on the ground and ran towards the deer. The mole ran out of the bush and quickly cut the rope. The tortoise was free! "Friend tortoise, run!" cried the mole.
+
+For a tortoise, he moved really fast straight to the lake.  
+
+Meanwhile, the hunter had almost reached the deer. The crow could see that the tortoise was now safe in lake. "Caw! Caw!" she cried and flew away.
+
+That was the signal! The deer sprang to his feet and ran away. The hunter had no chance of catching him. And when he turned back, he found the tortoise missing too!
+
+The four friends hurried back to the banyan tree. "Thank you friends for saving my life!" said the tortoise.
+
+"No thanks needed," said the deer with a smile, "As long as we help each other, we'll always be safe!"
