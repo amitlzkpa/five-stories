@@ -1,0 +1,3 @@
+In the first millennium, roughly 1,500 years ago, a pair of jackals began travelling around the world. They were known in India as Karataka and Damanaka, and they were the stars of one of the fabulous animal stories in a vast collection known as the Panchatantra.
+
+Carried to Iran by the Persian physician Borzuya, the jackals became Kalilag and Dimnag. The stories flowed from Pahlavi into Arabic, where they remain Kalila and Dimna, from Arabic into Syriac, and from Syriac, many centuries later, into German. In the 8th Century, the jackals – one wily and cunning, one noble and upright – found their way into Old Castilian, where Europe embraced Calila and Dimna.
