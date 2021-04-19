@@ -3,6 +3,8 @@
 Four friends – a deer, a crow, a mouse and a tortoise – hung out together all the time. Little did they know about the problem they were going to face.
 
 ---
+![Four Friends](/images/deer.jpg)
+---
 
 An unusual group of four friends lived deep inside a forest. The four friends were: a deer, a crow, a mouse and a tortoise. They would meet every afternoon under a shady banyan tree and talk for hours.
 
