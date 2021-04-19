@@ -3,6 +3,8 @@
 A parrot that brought more surprises than promised.
 
 ---
+![The Bird in the Golden Cage](/images/parrot.jpg)
+---
 
 A merchant in Persia, received a gift from his friend. It was a green parrot in a beautiful golden cage. "I got this talking parrot especially for you from India. Just feed this parrot chilies and hear its beautiful songs," said the friend.
 
