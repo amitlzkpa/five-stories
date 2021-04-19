@@ -19,3 +19,11 @@ The deer was happy to see his friends. The mole start cutting through the net. I
 "Ah! Looks like our friend is free!" came a voice from the bushes. It was the tortoise who had walked slowly to the spot.
 
 At same moment, the hunter arrived. The deer ran swiftly. The crow flew away. The mole quickly dug a hole to hide in. But the tortoise was too slow.
+
+With the tortoise on his back, the hunter headed back to the village. The path took him past a lake. He saw the body of a deer lying on the grass. A crow was sitting on the deer's antlers, pecking at his eyes.
+
+The hunter could not believe his luck. "I lost one deer, but looks like I have found another! And I don't even have to kill this one," he said to himself.
+
+The tortoise smiled. His friends had come to rescue him.
+
+The hunter left the tortoise on the ground and ran towards the deer. The mole ran out of the bush and quickly cut the rope. The tortoise was free! "Friend tortoise, run!" cried the mole.
