@@ -37,3 +37,10 @@ That was the signal! The deer sprang to his feet and ran away. The hunter had no
 The four friends hurried back to the banyan tree. "Thank you friends for saving my life!" said the tortoise.
 
 "No thanks needed," said the deer with a smile, "As long as we help each other, we'll always be safe!"
+
+Source:  
+The four friends
+30 October 2020
+Krishna Rao
+KathaKids
+https://kathakids.com/folktales/panchatantra-stories/panchatantra-stories-for-kids/
