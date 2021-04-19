@@ -1,5 +1,9 @@
 # Four Friends
 
+Four friends – a deer, a crow, a mole and a tortoise – hung out together all the time. Little did they know about the problem they were going to face.
+
+---
+
 An unusual group of four friends lived deep inside a forest. The four friends were: a deer, a crow, a mole and a tortoise. They would meet every afternoon under a shady banyan tree and talk for hours.
 
 One day, the deer did not turn up at the usual time. The mole, tortoise and crow were worried. The mole asked the crow if she could fly around and see if she could find the deer. The crow nodded her head and flew away.
